@@ -9,7 +9,11 @@ Here I just collect my notes of where I would like to go in Malaysia
 ### Borneo
 1. [Bako Park](https://sarawakforestry.com/parks-and-reserves/bako-national-park/) \
 Looks very promising. It has [accomodation to stay](https://bakonationalpark.my/accommodation/) and people to explain what to do. So far it looks like a camp next to a very nice national park. My first priority place to go in Borneo island. \
-**How to reach:** Land to Sarawak town (KL - Sarawak: 2 hrs, $50)
+**How to reach:** \
+a. Land to Sarawak town (buy airplane tickets in advance if you buy them a day before, you would pay x2, x3). \
+b. Take a taxi ($15) or a bus to waterfront area of the town (it's next to the river and might be a downtown or something). You will need a Bako Bus Stop. \
+c. Take a bus from Bako Bus Stop in Kuching. \
+d. Take a boat ride ($50) to Bako.
 3. [Gunung Mulu National Park](https://mulupark.com/) \
 This place is famous by its caves. There I can go to a cave trip and a forest boat ride. [Accomodation to stay](https://mulupark.com/accomodations-facilities/#discovery-centre). \
 **How to reach:** Mulu can be reached by plane from Miri (30 minutes), Kuching (1 hour 20 minutes) & Kota Kinabalu (55 minutes). Miri, Kuching and Kota Kinabalu could be reached from KL for $40 - $70. [Here is more information of how to reach the place](https://mulupark.com/plan-your-trip/)
