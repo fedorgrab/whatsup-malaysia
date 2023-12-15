@@ -51,6 +51,7 @@ This is just a city park with an artificial waterfall. Looks cool, I saw it by a
   1 - 1.5 hr road trip. There's a Galvestone Islan National park. Looks pretty cool, nice beach. [Some info about Galvestone Island National Park](https://www.jillbjarvis.com/galveston-island-state-park-beach-nature-center-trails-fish-kayaking-and-more/)
 2. Beaumont. 1.5 hrs drive. It has: [Cattail Marsh Park](https://www.tripadvisor.com/Attraction_Review-g60737-d4241868-Reviews-Cattail_Marsh-Beaumont_Texas.html), [Beumont Botanical Garden](https://www.tripadvisor.com/Attraction_Review-g60737-d2707187-Reviews-Beaumont_Botanical_Gardens-Beaumont_Texas.html), [More things to see in Beaumont](https://www.tripadvisor.com/Tourism-g60737-Beaumont_Texas-Vacations.html)
 3. [Mc Faddin National Wildlife Refuge](https://explorelonestarcoastal.com/listing/mcfaddin-national-wildlife-refuge/)
-4. Dallas
+4. [Sea Rim National State Park](https://maps.app.goo.gl/HGuciuWDHPRAHg8CA)
+5. Dallas
 Quite a long trip, but there's also [Ennis bluebonnet Park](https://maps.app.goo.gl/hyCWU6zyrbcTKbyE8) to visit around Dallas
-5. Trip: Houston -> Beaumont -> Mc fadding National Wildlife Refuge
+6. Trip: Houston -> Beaumont -> Sea Rim National State Park -> Mc Fadding National Wildlife Refuge
